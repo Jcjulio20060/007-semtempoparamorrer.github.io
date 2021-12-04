@@ -1,1 +1,0 @@
-# 007-semtempoparamorrer.github.io
